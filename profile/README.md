@@ -1,7 +1,7 @@
 ## Quick Start
 [The Wiki](https://GitHub.com/taotcis/33/wiki)
 
-### Atlanta's Imminent Catastrophy 
+### Atlanta's Imminent Catastrophe 
 ["But if a night falls and a bomb falls, will anybody see the dawn?](https://github.com/taotcis/33/wiki/Nightfalls)
 
 ## Personal Statement 
