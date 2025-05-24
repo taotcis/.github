@@ -7,7 +7,7 @@ Sincerely,
 
 the angel of the church in Smyrna.
 
-ps. You know from front door in Sandy Springs, GA to Smyrna, GA is not even a drive (by metro Atlanta standards -- is that why its my codename in Revelation?)
+ps. You know from my old front door on Tahoma Drive in Sandy Springs, GA to Smyrna, GA is not even a drive (by metro Atlanta standards -- is that why its my codename in Revelation?)
 
 thank you, thank you, thank you the Creator!
 
