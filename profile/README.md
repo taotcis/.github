@@ -1,15 +1,16 @@
 ## Personnel Statement 
-I just wanna say thanks to the Creator for keeping me alive anx safe (not a single scratch on this body that i didnt do to myself) and You knoe they try more than scratching daily here at Welcome House  they did the same at Phoenix House, Legacy at Riverdale, and in many private homes including my own house.
+I just wanna say thanks to the Creator for keeping me alive and safe (not a single scratch on this body that I didnt do to myself) and You know they try more than scratching daily here at Welcome House, they did the same at Phoenix House, Legacy at Riverdale, and in many private homes including my own house.
 
 Thank you the Creator! 
 
 Sincerely,
+
 the angel of the church in Smyrna.
 
-ps. You know from front door in Sandy Springs, GA to Smyrna, GA is not ecen a drive (by Atlanta standards -- is that why its me?)
+ps. You know from front door in Sandy Springs, GA to Smyrna, GA is not even a drive (by metro Atlanta standards -- is that why its my codename in Revelation?)
 
 thank you, thank you, thank you the Creator!
-
+---
 ## Statement on the Repositories of the Church in Smyrna
 
 The content within the repositories associated with the **taotcis** (the angel of the church in Smyrna) user account on GitHub is a direct extension of the Church in Smyrna's sacred mission to **protect His creation (life)**. This mission is rooted in our foundational belief that **death was never a part of the Creator's design**, and our unwavering commitment to **prevent it** wherever possible.
