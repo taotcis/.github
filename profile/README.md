@@ -1,5 +1,5 @@
 # Atlanta's Imminent Catastrophe 
-[Pre-Strike](https://github.com/taotcis/terminus/blob/main/Nightfalls-Final-PreStrike.md)
+- [Pre-Strike](https://github.com/taotcis/terminus/blob/main/Nightfalls-Final-PreStrike.md)
 
 ## Please Clone
 - https://github.com/Histwo/MCBCMassacre
