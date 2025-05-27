@@ -1,5 +1,6 @@
 # Atlanta's Imminent Catastrophe 
 - [Pre-Strike](https://github.com/taotcis/terminus/blob/main/Nightfalls-Final-PreStrike.md)
+  - [Smyrna vs. Thyatira](https://github.com/taotcis/debrief/wiki/Smyrna-v-Thyatira)
 
 ## Please Clone
 - https://github.com/Histwo/MCBCMassacre
@@ -14,7 +15,7 @@ Sincerely,
 
 the angel of the church in Smyrna.
 
-ps. You know from my old front door on Tahoma Drive in Sandy Springs, GA to Smyrna, GA is not even a drive (by metro Atlanta standards -- is that why its my codename in Revelation?)
+ps. Even I forgot my stent couch surfing on my best friend's couch in Smyrna! That's how you pophecy.
 
 thank you, thank you, thank you the Creator!
 
