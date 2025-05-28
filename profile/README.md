@@ -1,6 +1,7 @@
 # Atlanta's Imminent Catastrophe 
 - [Pre-Strike](https://github.com/taotcis/terminus/blob/main/Nightfalls-Final-PreStrike.md)
   - [Smyrna vs. Thyatira](https://github.com/taotcis/debrief/wiki/Smyrna-v-Thyatira)
+  - [Journaling in the commit log](https://github.com/taotcis/terminus/commits/master/)
 
 ## Please Clone
 - https://github.com/Histwo/MCBCMassacre
