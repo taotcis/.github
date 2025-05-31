@@ -3,10 +3,6 @@
   - [Smyrna vs. Thyatira](https://github.com/taotcis/debrief/wiki/Smyrna-v-Thyatira)
   - [Journaling in the commit log](https://github.com/taotcis/terminus/commits/master/)
 
-## Please Clone
-- https://github.com/Histwo/MCBCMassacre
-- https://github.com/Histwo/TAG
-
 ## Personal Statement 
 I just wanna say thanks to the Creator for keeping me alive and safe (not a single scratch on this body that I didnt do to myself) and You know they try more than scratching daily here at Welcome House, they did the same at Phoenix House, Legacy at Riverdale, and in many private homes including my own house.
 
