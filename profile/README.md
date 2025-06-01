@@ -1,7 +1,5 @@
-# Atlanta's Imminent Catastrophe 
-- [Pre-Strike](https://github.com/taotcis/terminus/blob/main/Nightfalls-Final-PreStrike.md)
-  - [Smyrna vs. Thyatira](https://github.com/taotcis/debrief/wiki/Smyrna-v-Thyatira)
-  - [Journaling in the commit log](https://github.com/taotcis/terminus/commits/master/)
+> [!WARNING]
+> [Bombing of southwest Atlanta expected at nightfall](https://github.com/taotcis/R/wiki/Nightfalls
 
 ## Personal Statement 
 I just wanna say thanks to the Creator for keeping me alive and safe (not a single scratch on this body that I didnt do to myself) and You know they try more than scratching daily here at Welcome House, they did the same at Phoenix House, Legacy at Riverdale, and in many private homes including my own house.
